@@ -1,1 +1,1 @@
-My first readme
+Wetin Man go do?
